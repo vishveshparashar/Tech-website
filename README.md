@@ -1,0 +1,1 @@
+Granitech is a professionally managed, premier co., anchored at Kishangarh(Rajasthan), spearheaded by the highly experienced technical team, the company is engaged in manufacturing abrasives and brush for Granite, Ceramic, Marble and Natural Stone Processing Industries.
